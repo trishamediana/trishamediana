@@ -9,9 +9,9 @@
 
 <br />
 
-hi, i'm Trisha, chillin in github to learn and exploring fascinating codes.
+Holla, i'm Trisha, chillin in github to learn and exploring fascinating codes.
 
-  
+- 💬 Ongoing undergraduate student of Biomedical Engineering at Sepuluh Nopember Institute of Technology  
 - 💼 Need something? do reach, [email](mailto:trishamediana@gmail.com) :)
 - 💬 Ask something? DM my Instagram :)
 
